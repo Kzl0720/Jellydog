@@ -1,2 +1,2 @@
-# Jellydog
-copy by jellycat
+# Jellydog ,[Larila]
+plushies toy
